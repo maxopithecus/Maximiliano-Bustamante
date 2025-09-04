@@ -1,4 +1,4 @@
-# Maximiliano-Bustamante
+# Maximiliano Bustamante
 
 
 Biólogo apasionado por las teorías evolutivas contemporáneas, la genómica antigua, historia de la ciencia, salud e injusticia social 
